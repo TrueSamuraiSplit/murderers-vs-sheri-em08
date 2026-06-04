@@ -1,4 +1,4 @@
-
+Experience jujutsu infinite like never before with hidden jujutsu infinite Scripts, the #1 Script. Includes instant win and silent aim for unbeatable
 
 
 
